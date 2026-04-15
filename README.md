@@ -5,3 +5,4 @@
 ![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/7c438ae256435c96132ce4c51213432a2403a5c8/Screenshot%202026-04-14%20191424.png)
 ![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/aa43532be1fb81d7cc51bddd3e517ca4f9f34453/Screenshot%202026-04-14%20191414.png)
 ![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/97f94d474a0448ad142dbc41634cd95fa630878d/Screenshot%202026-04-14%20191401.png)
+![](https://github.com/SequenceOfTheInfinitverse/SequenceOfTheInfinitverse/blob/4e5ee7bf3c3cf02d2079cb8a86846906fb5b8856/Screenshot%202026-04-14%20191351.png)
